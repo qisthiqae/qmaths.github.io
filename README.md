@@ -1,1 +1,0 @@
-# qmaths.github.io
